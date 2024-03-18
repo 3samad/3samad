@@ -10,6 +10,7 @@
 
 🗺️ Traveling
 
+⚡  Reach out on LinkedIn (www.linkedin.com/in/abousmara)
 
 
 
