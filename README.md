@@ -7,6 +7,7 @@
 🥋 Martial arts
 
 📸 Photography
+
 🗺️ Traveling
 
 
