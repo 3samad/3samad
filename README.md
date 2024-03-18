@@ -3,7 +3,9 @@
 - Excited to collaborate with fellow professionals and contribute to innovative projects that leverage the power of data to drive insights and improve decision-making.
 
 🌍 Germany
+
 🥋 Martial arts
+
 📸 Photography
 🗺️ Traveling
 
