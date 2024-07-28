@@ -1,4 +1,4 @@
-<h3 align="center">Junior Data Scientist and Machine Learning enthusiast</h3>
+<h3 align="center">Data Scientist and Machine Learning enthusiast</h3>
 <h3 align="center">Engineer with Project Management background</h3>
 
 
